@@ -1,3 +1,3 @@
-Hey, Uzi here. 
+Hey, National here. 
 
-Listen, I dont care what you say. You can argue with me or be mad at me for being based. But I genuinely dont care atp, dni if you have a problem with my opinion and wanna argue. 
+I mainly play ponytown and roblox. If im not on either, im on discord. if im not on discord just dm me and ill talk
