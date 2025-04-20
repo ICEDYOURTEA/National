@@ -2,11 +2,13 @@ Hey, National here.
 
 I mainly play ponytown and roblox. If im not on either, im on discord. if im not on discord just dm me and ill talk
 
-What do i like? i like ena, mostly foresaken, some tmc, thats it. you wont see me outside of foresaken community unless im using an oc. 
+What do i like? i like ena, mostly foresaken and myths, some tmc, thats it. you wont see me outside of foresaken community unless im using an oc. 
 
 Whats my personality? well, i technically use two. its not a personality disorder or to make fun of them, its an inside joke. i love funny things and silly things. I make people happy because i want to
 
 dni if you wanna int with caution. im not a crybaby or a hypocrite, i can handle what people say. 
+
+I have two roblox accounts. my main, AMAZOOKNATIONAL, and my alt/a shared account (with my brother), Arisalan374. i play foresaken, some divine sister games, i used to play pressure, and i love myths if you couldn't tell by my username. 
 
 ive got a cool lab rp n stuff
 
