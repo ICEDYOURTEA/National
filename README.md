@@ -2,44 +2,24 @@ Hey, National here.
 
 I mainly play ponytown and roblox. If im not on either, im on discord. if im not on discord just dm me and ill talk
 
-What do i like? i like ena, mostly foresaken and myths, some tmc, thats it. you wont see me outside of foresaken community unless im using an oc. 
+What do i like? i like ena sometimes, tmc sometimes, pressure sometimes, kp sometimes, used to like forsaken, currently liking classic games + blocktales (work at a pizza place, natural disaster) 
 
-Whats my personality? well, i technically use two. its not a personality disorder or to make fun of them, its an inside joke. i love funny things and silly things. I make people happy because i want to
+personality? ew. eewww.. ok so im just usually calm but if you piss me off im not afraid to say it. 
 
-dni if you wanna int with caution. im not a crybaby or a hypocrite, i can handle what people say. 
+thin ice : dandys world, kp/transfur outbreak and such, etc. if you're weird im immediately blocking you. 
 
-I have two roblox accounts. my main, AMAZOOKNATIONAL, and my alt/a shared account (with my brother), Arisalan374. i play foresaken, some divine sister games, i used to play pressure, and i love myths if you couldn't tell by my username. 
+dni : pedos, under 13, above 22, controversial people, e-daters, o-daters, weirdos, and anything else thats on a basic dni list. 
 
-ive got a cool lab rp n stuff
+i have too many accounts on Roblox. I owm Arisalan374, AMAZOOKNATIONAL, IlluminasWishes, UnrealTo_Time, EVERCHANGING_TRUTH, and probably more. Add me on the first three unless i tell you otherwise. 
 
-i have a lot of oc lore
+I own GardenSpire labs on ponytown. it's always in development. 
 
-i love lore and writing for characters in general
+I have plenty of oc lore and trauma. 
 
-you can ask me to help you build. be warned i like my builds cluttered or with atleast a lot of plants. 
+I love writing lore in general, especially world building or even just particular characters.
+
+You can ask me to help you build. be warned i like my builds cluttered or with atleast a lot of plants. 
 
 dont copy my characters please 
 
-oh and
-have some quotes
-
-07:17 PM[NOVA!!! /Comf oc./] passes down the freaky
-
-11:48 PM[What does he look like🥀🥀] thinks: *sacrifices u to nosoi*
-
-10:57 PM[ts juley] Gordon Freeman! Their trying to straight you! 
-
-06:19 PM[roll or die 🎲 | Chance | Dnc] don't be scared bbg .. nothing here weill hurt u.. except me😈-
-
-05:55 PM[lightbulb , liddally me] thinks: tickle tip
-
-
-09:54 AM[the1 next2 me is my wiefe] whispers: undress now.
-
-10:15 AM[telangiectasia] i need to change the yee
-
-shout-out to kace, you need a mental assylum
-
-shout-out to nameless for being my favorite 
-
-and shout-out to angel for the yee
+If anyone asks, you don't know me, they're a government agent and im not paying taxes
