@@ -1,8 +1,8 @@
-Hey, National here. 
+Hi. 
 
 I mainly play ponytown and roblox. If im not on either, im on discord. if im not on discord just dm me and ill talk
 
-What do i like? i like ena sometimes, tmc sometimes, pressure sometimes, kp sometimes, used to like forsaken, currently liking classic games + blocktales (work at a pizza place, natural disaster) 
+What do i like? i like ena sometimes, tmc sometimes, pressure sometimes, kp sometimes, used to like forsaken, currently liking classic games + blocktales (work at a pizza place, natural disaster) , and Roblox myths. 
 
 personality? ew. eewww.. ok so im just usually calm but if you piss me off im not afraid to say it. 
 
